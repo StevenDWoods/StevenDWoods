@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @StevenDWoods
 - 👀 I’m Stebo the Ai Whisperer 
-- I'm currently learning everything I cay
+- I'm currently learning everything I can 
 - 💞️ I’m looking to collaborate on innovation 
 - 📫 How to reach me dashbrandusa@gmail.com
 
