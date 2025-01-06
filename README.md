@@ -2,7 +2,7 @@
 - 👀 I’m interested in javascript 
 - 🌱 I’m currently learning python 
 - 💞️ I’m looking to collaborate on innovation 
-- 📫 How to reach me 804 236 6651
+- 📫 How to reach me dashbrandusa@gmail.com
 
 <!---
 StevenDWoods/StevenDWoods is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
