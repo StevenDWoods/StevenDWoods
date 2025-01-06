@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @StevenDWoods
-- 👀 I’m interested in javascript 
-- 🌱 I’m currently learning python 
+- 👀 I’m Stebo the Ai Whisperer 
+- I'm currently learning everything I cay
 - 💞️ I’m looking to collaborate on innovation 
 - 📫 How to reach me dashbrandusa@gmail.com
 
